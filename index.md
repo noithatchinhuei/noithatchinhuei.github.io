@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="-WBw2Y9qD3aRpOS_qMVV1HXS-Wjqj6RbkBIDY7XFfcM" />
 # Nội thất Chin Huei Hà Nội
 
 Nội thất Chin Huei Hà Nội chuyên thi công, sản xuất theo yêu cầu các sản phẩm nội thất nhựa cao cấp từ tấm nhựa Đài Loan Chin Huei tiêu chuẩn và 2.0 Plus. Đảm bảo chất lượng uy tín, độ bền cao, không mối mọt cong vênh và mức giá cạnh tranh nhất thị trường.
